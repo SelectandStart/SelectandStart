@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SelectandStart
+- 👀 I’m interested in gaming servers.
+- 🌱 I’m currently learning everything I can!
+- 💞️ I’m looking to collaborate on anything relating to game servers and web design
+- 📫 Reach out to us @ https://selectandstart.com
